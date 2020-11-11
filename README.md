@@ -2,7 +2,7 @@
 
 ### if u want to contact me for any reason, you can reach me here:
 
-[<img align="left" title="szkiddaj#0911" alt="Discord" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/discord.svg" />](#) \
+[<img align="left" title="szkiddaj#0911" alt="Discord" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/discord.svg" />](#) 
 
 ### languages and tools what I usually use because why not
 
