@@ -1,4 +1,4 @@
-### heo, I am szkiddaj. I'm a 17 year old, self taught programmer kiddo from Hungary. c:
+### heo, I am szkiddaj. I'm a 18 year old, self taught programmer kiddo from Hungary. c:
 
 ### if u want to contact me for any reason, you can reach me here:
 
